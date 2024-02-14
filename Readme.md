@@ -1,2 +1,2 @@
-Stolbov Maksim
+Stolbov Maks
 PS-12
